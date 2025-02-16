@@ -1,4 +1,4 @@
-**Prasanna**  
+## **Prasanna**  
 📞 9148065898 | 📧 [prasanna.jon@gmail.com](mailto:prasanna.jon@gmail.com)  🔗 [LinkedIn](https://www.linkedin.com/in/prasanna-poojari/) | [GitHub](https://github.com/prasanna-p/PersonaBrief) 
 
 ---
